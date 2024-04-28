@@ -1,0 +1,1 @@
+# SMART-3-day-mag-Hardware
